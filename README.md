@@ -1,0 +1,1 @@
+# salario-minimo-y-pobreza-Ecuador
